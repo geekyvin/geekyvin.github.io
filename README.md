@@ -2,7 +2,12 @@
 
 
 ### The dynamic range of percevied reality
-There seems to be a dynamic range of reality that we not only seem to be comfortable with but also define our framework of thinking. I have a problem with that because it discredits the ideas that we do not percevive or experience in our everyday life. 
+There seems to be a dynamic range of reality that we not only seem to be comfortable with but also define our framework of thinking. I have a problem with that because it discredits the ideas that we do not percevive or experience in our everyday life. Ideas such as nations can be built by small number of people day after day, brick by brick. It also alienates the idea that greate nations cannot fall, because they have always been that way as far they know. 
+This reminds me of the story from the constitutional convention of 1787, when Benjamin Franklin walked out of Pheledelphia's independence hall to find the anxious vrows, there was a women who had the first chance to talk to him. She asked, "well Doctor, what do we have? A Republic or a Monarchy?" and Benjamin Franklin replied "A Republic, if you can keep it."
+
+The sense of fragility of great, big and marvelous things that Ben Franklin had is evident in this statement. But this is the same man who was among the founding fathers who created America from scratch.
+
+We need to train our mind to capture that sense, that things that are seemingly great can be fragile and fall, we, the quintessential man/women can push something and make it fall, change the history. A sense that a handful number of people can build something great, something that could touch millions of people's life.
 
 
 ### Let's talk about fashion
