@@ -1,4 +1,4 @@
-## GeekyVin Blog Posts
+## Vin Blog Posts
 
 
 ### The dynamic range of percevied reality
