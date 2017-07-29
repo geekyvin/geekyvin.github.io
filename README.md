@@ -7,7 +7,7 @@ This reminds me of the story from the constitutional convention of 1787, when Be
 
 The sense of fragility of great, big and marvelous things that Ben Franklin had is evident in this statement. But this is the same man who was among the founding fathers who created America from scratch. Soemone who created something from near nothing.
 
-We need to train our mind to capture that sense, that things that are seemingly great can be fragile and fall, we, the quintessential man/women can push something and make it fall, change the history. A sense that a handful number of people can build something great, something that could touch millions of people's life.
+We need to train our mind to capture that sense, that things that are seemingly great can be fragile and fall, we, the quintessential man/women can push something and make it fall, change the history. A sense that we are never too small to be great and never too big to fall. A sense that a handful number of people can build something great, something that could touch millions of people's life.
 
 
 ### Let's talk about fashion
