@@ -18,3 +18,15 @@ We beleive in things/not believe in certain things only because that's the omnip
 
 ### Silver Surfer's Prespective
 Every one encourages you to grow to a point where you can discount for your own bad mood. But almost nobody encourage you to grow beyond that. Growing beyond that means discounting for society's bad mood.
+
+### Possible Responses 
+- Yes
+- No
+- I Understand
+- No Excuse
+
+### Possible options in any situation
+- Neglect
+- Voice your opinion
+- Persist
+- Exit
