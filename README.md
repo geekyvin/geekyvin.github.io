@@ -50,12 +50,9 @@ Persist - Persistence is gritting your teeth and bearing the situation. You’ve
 
 Neglect - Neglect entails staying in the current situation but reducing your involvement in it. This could mean just doing just enough at work not to get fired.
 
-![alt text](https://github.com/geekyvin/geekyvin.github.io/blob/master/img/originals-options.png)
+    ![alt text](https://github.com/geekyvin/geekyvin.github.io/blob/master/img/originals-options.png)
 
-Voice
-Control vs Commitment
-
-The 4 options can be seen as a trade-off between control (Do you believe you can effect change?) and commitment (Do you care enough to try?).
+The four choices are based on feelings of control (Do you believe you can effect change?) and commitment (Do you care enough to try?).
 
 If you feel you can’t make a difference, then you would choose to persist if you’re committed and you’d neglect if you aren’t. If you feel you can make a difference, then you would choose to voice if you’re committed and you’d quit if you aren’t.
 
