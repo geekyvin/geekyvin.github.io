@@ -50,6 +50,8 @@ Persist - Persistence is gritting your teeth and bearing the situation. You’ve
 
 Neglect - Neglect entails staying in the current situation but reducing your involvement in it. This could mean just doing just enough at work not to get fired.
 
+![alt text](https://github.com/geekyvin/geekyvin.github.io/blob/master/img/originals-options.png)
+
 Voice
 Control vs Commitment
 
