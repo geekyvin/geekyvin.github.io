@@ -60,5 +60,6 @@ If you feel you can’t make a difference, then you would choose to persist if y
 
 source - Originals by Adam Grant
 
+------------------------------------------------------------------------------------------------------------------
 
 https://en.wikipedia.org/wiki/Prospect_theory
